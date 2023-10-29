@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Abduljiggy
+- 👋 Hi, I’m Abdulkadiri Mohammed 
 - 👀 I’m interested in website and software development 
 - 👨🏾‍🎓 I’m currently studying computer science  at @ibb university lapai ...
 - 👨‍🏫 I’m looking to find a mentor who can guide me in learning more 
